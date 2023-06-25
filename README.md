@@ -1,0 +1,1 @@
+# 92-AWS-UG-SP-PRESENCIAL-Recap-AWS-re-Inforce-e-Generative-AI
